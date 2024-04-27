@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **guruvamsi061@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **You can't wash your eyes with soap**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
